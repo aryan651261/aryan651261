@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @aryan651261
-- 👀 I’m interested in web deveops...
+- 👀 I’m interested in web deveops
 - 🌱 I’m currently learning in 3rd yr cse enginnering
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me ...aryagatfane123@gmail.com
+- 📫 How to reach me ...aryangatfane123@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
